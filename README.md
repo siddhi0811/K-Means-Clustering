@@ -1,0 +1,8 @@
+![Screenshot 2024-03-21 095756](https://github.com/siddhi0811/Mall-Customer/assets/143083345/99db9cbb-6c7b-403a-937e-ef8b20d8087f)
+![Screenshot 2024-03-21 095811](https://github.com/siddhi0811/Mall-Customer/assets/143083345/3aa10698-4128-4892-97ee-75f08ffdbd9e)
+![Screenshot 2024-03-21 095841](https://github.com/siddhi0811/Mall-Customer/assets/143083345/86fc395e-5452-476d-8231-48fb45bacb9f)
+![Screenshot 2024-03-21 095900](https://github.com/siddhi0811/Mall-Customer/assets/143083345/b6749c43-82a5-4274-9291-c85678a4c282)
+![Screenshot 2024-03-21 100007](https://github.com/siddhi0811/Mall-Customer/assets/143083345/ec963c52-5527-4449-870b-1df384ed73c1)
+![Screenshot 2024-03-21 100016](https://github.com/siddhi0811/Mall-Customer/assets/143083345/38d300f0-f48b-4480-a4f0-1411eff6a145)
+![Screenshot 2024-03-21 100031](https://github.com/siddhi0811/Mall-Customer/assets/143083345/72378b9c-8f1e-467b-a876-2e81e3dc2184)
+![Screenshot 2024-03-21 100040](https://github.com/siddhi0811/Mall-Customer/assets/143083345/975e3cc0-cc76-4445-9adb-adb2c98b1eb0)
